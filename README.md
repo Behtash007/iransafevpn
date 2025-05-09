@@ -5,6 +5,8 @@
 - [**✉️ارسال پیام در واتس اپ کلیک کنید**](https://wa.me/447384106087)
 
 
+- [**خرید v2ray**](https://iransafe.net/خرید-v2ray-اختصاصی )
+
 - [**خرید vpn**](https://iransafe.net)
 
 https://iransafe.net
